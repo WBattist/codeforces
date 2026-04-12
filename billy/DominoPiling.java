@@ -12,3 +12,4 @@ public class DominoPiling {
         scanner.close();
     }
 }
+// truncation is a goat but also fucking sucks
