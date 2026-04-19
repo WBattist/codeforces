@@ -7,3 +7,8 @@ aiming to do one problem a day
 @SwiftyProgrammer690
 
 flowkirk forgot today
+
+
+
+
+so like we both gave up, STEM sucks
