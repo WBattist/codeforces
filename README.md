@@ -12,3 +12,5 @@ flowkirk forgot today
 
 
 so like we both gave up, STEM sucks
+
+genuinely matulka kys, you make learning a simple topic a course of hell. Hours of study for little return.
