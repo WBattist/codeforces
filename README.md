@@ -18,3 +18,5 @@ genuinely matulka kys, you make learning a simple topic a course of hell. Hours 
 i should have listened to eshan bro STEM is a false dream
 
 forgot to xommit yesterday, dirst time in 2 weeks 
+
+uhh tuff tuff
